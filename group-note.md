@@ -1,1 +1,1 @@
-Ghi chú nhóm:
+ghi chú của cường
